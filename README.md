@@ -1,7 +1,7 @@
  -Olá,meu nome é Evellyn de Cerqueira Silva 
  -Estou interessada em achar um emprego 
- -Atualmente estou cursanso o ensino médio 
- -Estou procurando colaborar em um projeto grande 
+ -Atualmente estou cursando o ensino médio 
+ -Estou procurando colaborar em  projetos grandes
  -Para entrar em contato evellyn.cerqueira.silva@escola.pr.gov.br
  -Pronomes :ela/dela 
  -Algumas características minhas:sou esforçada;gosto de trabalhar em grupo,sou super agilizada e organizada 
